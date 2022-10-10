@@ -19,7 +19,7 @@ My goal is to travel the world whilst working a part time job. That, plus my int
 
 ### Experience
 I have no experience in this world of programming, all new to me.
-7+ years of experience in airports and aeronautics. Hope tha some day I can merge this two passions. Always eager to learn, learning is my own path to self-realization.
+8+ years of experience in airports and aeronautics. Hope tha some day I can merge this two passions. Always eager to learn, learning is my own path to self-realization.
 
 ### EDUCATION: 
 - Bachelor's degree in Hospitality and Tourism.
